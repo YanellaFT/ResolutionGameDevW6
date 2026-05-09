@@ -13,3 +13,5 @@ Play [here](https://gx.games/games/jvr1kq/resolutiongamedevw6/tracks/141609d1-b8
 (Either give this link to another friend or open two tabs with the same link and play.)
 
 ![pic of game](<pic.png>)
+
+See timelapse [HERE](https://lapse.hackclub.com/timelapse/I6L_LIckbtac)
